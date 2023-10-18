@@ -1,1 +1,1 @@
-yudono putro utomo
+Halo ini teks pertama
